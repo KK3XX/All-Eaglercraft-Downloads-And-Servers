@@ -12,7 +12,7 @@ every file has its own page with instructions and anoher download link
 (NOT ALL HAVE A LINK IM STILL MAKING THEM)
 
 
-press the file you want and download the raw script
+press the file you want and download the raw script than open the file
 example:
 
 
