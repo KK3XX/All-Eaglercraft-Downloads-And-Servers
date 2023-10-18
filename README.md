@@ -1,3 +1,9 @@
+UPDATE: i need someone to uplaod this code to the web as a website my school has blocked html running in our browser so im trying to get it as a website
+im not sure how to do that but you can probably assist me you can dm me on discord @izzy_itb  
+Thank you
+
+
+
 every eaglercraft download for 1.8
 
 every file has its own page with instructions and anoher download link 
