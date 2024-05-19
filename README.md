@@ -1,4 +1,4 @@
-BIGBOI WAS HERE
+Lo_Fi
 
 
 UPDATE: i need someone to uplaod this code to the web as a website my school has blocked html running in our browser so im trying to get it as a website
