@@ -1,3 +1,4 @@
+I am XsniperX i play multiple servers on eagler with that exact username i mainl play zentic if you see me say hi!
 UPDATE: All files should still work and this will be the main new update im attempting to get the files for the more recent thhings but its a struggle.
 
 All the working servers for eaglercraft 1.5.2. (servers are going down in 2023)
