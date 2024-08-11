@@ -72,7 +72,7 @@ https://reslauncher.vercel.app/1.8/beta.html
 https://reslauncher.vercel.app/1.8/index.html <-- This is the older version of 1.8 resent. 
 https://eaglercraft-archive.github.io/Koneclient-1.8-web/ <-- R.I.P to Kone client (server of kone client is down from many months and will never wake up but the)
 
-
+EAGLERCRACKX:  https://charming-capybara-53c2c8.netlify.app/
 
 Eaglercraft 1.3 google drive download file (this is the first version of eaglercraft, no one plays it and i guess there are no servers for it but definitely good starting)
 
