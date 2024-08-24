@@ -1,3 +1,7 @@
+Im making a eagler server if you are a dev lmk @dz_mc discord!
+
+EAGLER 1.9.4 https://launcher.orionzleon.me/game/web/main/1.9.4/
+
 I am XsniperX i play multiple servers on eagler with that exact username i mainl play zentic if you see me say hi!
 UPDATE: All files should still work and this will be the main new update im attempting to get the files for the more recent thhings but its a struggle.
 
